@@ -8,8 +8,7 @@ $${\\color{#edffcc}⊱ ─── {.⋅ ♫ ⋅.} ─── ⊰}$$
 
 $${\\color{#edffcc}Kirara \\ Main \\ ✧}$$
 
-![](https://komarev.com/ghpvc/?username=your-github-YuukiKoiFish)
-
+![](https://komarev.com/ghpvc/?username=your-github-YuukiKoiFish&style=plastic&color=edffcc&label=ExpressDeliveryPackage) 
 
 
  [AtaBook](https://ilovetreyandarmin.atabook.org)&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;[Rentry](https://rentry.co/ilovetreyclover) 
