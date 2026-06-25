@@ -8,8 +8,10 @@ $${\\color{#edffcc}⊱ ─── {.⋅ ♫ ⋅.} ─── ⊰}$$
 
 $${\\color{#edffcc}Kirara \\ Main \\ ✧}$$
 
-![roa](https://files.catbox.moe/srshtj.jpg) 
+[AtaBook](https://ilovetreyandarmin.atabook.org)
+[Rentry](https://rentry.co/ilovetreyclover) 
 
+![roa](https://files.catbox.moe/srshtj.jpg) 
 
 
 $${\\color{#edffcc} Current \ Fandoms \ : \}$$
