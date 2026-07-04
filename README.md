@@ -47,8 +47,8 @@ NOTE : Before You **INTERACT** with me, I actually love ChilYu [Childe x Ganyu].
     <td>
       𝐃𝐞𝐥𝐢𝐯𝐞𝐫𝐲! ✶ <br>
       $$\color{#edffcc}\text{Sign my Ata~!}$$<br>
-      $$\color{#edffcc}\text{Check Rentry For more}$$
-      $$\color{#edffcc}\text{Info!~}$$
+      $$\color{#edffcc}\text{Check Rentry/Straw for}$$
+      $$\color{#edffcc}\text{More Info!~}$$
     </td>
   </tr>
 </table>
