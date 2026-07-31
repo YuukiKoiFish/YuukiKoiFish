@@ -53,8 +53,6 @@ NOTE : Before You **INTERACT** with me, I actually love ChilYu [Childe x Ganyu].
   </tr>
 </table>
 
-![Hlalala](https://files.catbox.moe/lzxxz5.png) 
-
 $${\\color{#edffcc}⊱ ─── {.⋅ ♫ ⋅.} ─── ⊰}$$
 
 ![div 2](https://files.catbox.moe/x6s1xy.png) 
