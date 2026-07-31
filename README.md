@@ -4,6 +4,8 @@ $${\\color{#edffcc}⊱ ─── {.⋅ ♫ ⋅.} ─── ⊰}$$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lbweje6ptzzt6b4etmmy4gv5vy&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=daff9e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+$${\\color{#edffcc} Pony \\ town's \\ Kirara \\ in}$$ @pt-hall-of-media
+
 ![roa](https://files.catbox.moe/srshtj.jpg)
 
 ![Kiraraw](https://files.catbox.moe/ikfkuy.png) 
