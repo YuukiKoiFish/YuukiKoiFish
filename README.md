@@ -32,6 +32,8 @@ $${\\color{#edffcc} Current \ Fandoms \ : \}$$
 * $${\\color{#edffcc} Genshin \ Impact}$$
 * $${\\color{#edffcc} UmaMusume}$$
 * $${\\color{#edffcc} Attack \ On \ Titan}$$
+* $${\\color{#edffcc} Hetalia}$$
+* $${\\color{#edffcc} Countryhumans}$$
 
 
 ![rawr](https://files.catbox.moe/ss3r1l.png) 
