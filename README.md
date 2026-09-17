@@ -34,6 +34,7 @@ $${\\color{#edffcc} Current \ Fandoms \ : \}$$
 * $${\\color{#edffcc} Attack \ On \ Titan}$$
 * $${\\color{#edffcc} Hetalia}$$
 * $${\\color{#edffcc} Countryhumans}$$
+* $${\\color{#edffcc} Jaadugar: \ A \ Witch \ In \ Mongolia}$$
 
 
 ![rawr](https://files.catbox.moe/ss3r1l.png) 
